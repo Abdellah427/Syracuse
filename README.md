@@ -1,2 +1,0 @@
-# Syracuse
-Syracuse
